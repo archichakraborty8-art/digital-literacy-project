@@ -1,0 +1,12 @@
+✅ Do’s
+Use strong passwords
+Keep profiles professional
+Verify information before sharing
+Respect others online
+Use privacy settings
+❌ Don’ts
+Don’t share personal information publicly
+Don’t click suspicious links
+Don’t use offensive language
+Don’t spread fake news
+Don’t engage in cyberbullying
